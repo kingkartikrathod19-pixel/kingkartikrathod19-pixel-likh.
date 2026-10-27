@@ -1,1 +1,1 @@
-# kingkartikrathod19-pixel-likh.
+# kingkartikrathod19-pixel
